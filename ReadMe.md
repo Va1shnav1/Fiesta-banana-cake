@@ -1,0 +1,3 @@
+Read Me
+
+This recipe is one I have been using for about 3 years now. It's for a banana cake, and it tastes really good, too. I once added some cocoa powder to it, and that worked really well. Honestly, as long as the banana is there, the flavorings are interchangeable. I've used cinammon and coffee instead of vanilla many times, and it turned out great that way too. For the nuts, almonds work too. For the decoration, I always just cut some more nuts up and sprinkle them on top of the wet cake batter in the pan. I don't really add much frosting or icing or anything like that on it, because it usually doesn't match the cake's flavor, so I just eat it by itself. 
